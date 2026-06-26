@@ -1,4 +1,4 @@
-#### Living Stones Part 1 \- New Jerusalem
+#### Living Stones Part 1 - New Jerusalem
 
 ### Christ, the Rock
 Psalms 18:2  
@@ -10,7 +10,7 @@ Psalms 18:2
 Matthew 21:44  
 “And whosoever shall fall on this stone shall be broken: but on whomsoever it shall fall, it will grind him to powder.”
 
-### Stones of Fire \- A Different Kind of Stone
+### Stones of Fire - A Different Kind of Stone
 Ezekiel 28:14-16  
 \[14\] Thou art the anointed cherub that covereth; and I have set thee so: thou wast upon the holy mountain of God; thou hast walked up and down in the midst of the stones of fire.  
 \[15\] Thou wast perfect in thy ways from the day that thou wast created, till iniquity was found in thee.  
