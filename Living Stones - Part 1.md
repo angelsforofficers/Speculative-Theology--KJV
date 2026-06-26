@@ -1,4 +1,4 @@
-##### **Living Stones Part 1 \- New Jerusalem**
+##### Living Stones Part 1 \- New Jerusalem
 
 **\#\#\# Christ, the Rock**  
 Psalms 18:2  
