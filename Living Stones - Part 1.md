@@ -1,4 +1,4 @@
-##### Living Stones Part 1 \- New Jerusalem
+#### Living Stones Part 1 \- New Jerusalem
 
 ### Christ, the Rock
 Psalms 18:2  
@@ -10,7 +10,7 @@ Psalms 18:2
 Matthew 21:44  
 “And whosoever shall fall on this stone shall be broken: but on whomsoever it shall fall, it will grind him to powder.”
 
-**\#\#\# Stones of Fire \- A Different Kind of Stone**  
+### Stones of Fire \- A Different Kind of Stone
 Ezekiel 28:14-16  
 \[14\] Thou art the anointed cherub that covereth; and I have set thee so: thou wast upon the holy mountain of God; thou hast walked up and down in the midst of the stones of fire.  
 \[15\] Thou wast perfect in thy ways from the day that thou wast created, till iniquity was found in thee.  
@@ -35,7 +35,7 @@ Luke 20:36
 Joel 2:3  
 “A fire devoureth before them; and behind them a flame burneth: the land is as the garden of Eden before them, and behind them a desolate wilderness; yea, and nothing shall escape them.”
 
-**\#\#\# A Stone Cut Without Hands**  
+### A Stone Cut Without Hands
 1 Kings 6:7  
 “And the house, when it was in building, was built of stone made ready before it was brought thither: so that there was neither hammer nor axe nor any tool of iron heard in the house, while it was in building.”
 
@@ -92,7 +92,7 @@ Revelation 2:26-27
 Romans 8:5  
 “For they that are after the flesh do mind the things of the flesh; but they that are after the Spirit the things of the Spirit.”
 
-**\#\#\# Our Spirits are Living Stones**  
+### Our Spirits are Living Stones
 Revelation 21:9-11  
 \[9\] And there came unto me one of the seven angels which had the seven vials full of the seven last plagues, and talked with me, saying, Come hither, I will shew thee the bride, the Lamb's wife.  
 \[10\] And he carried me away in the spirit to a great and high mountain, and shewed me that great city, the holy Jerusalem, descending out of heaven from God,
@@ -204,7 +204,7 @@ John 14:3
 
 So a person is dead in their sins, which happened with original sin in the Garden of Eden, and when they are saved, made possible by something Jesus did roughly 2,000 years ago, they are spiritually re-born and their spirit goes to him to “sit together in heavenly places” and his spirit enters the believer \- Ephesians 2:6.
 
-**\#\#\# How You Are a Stone \- Pillar in the Temple**  
+### How You Are a Stone \- Pillar in the Temple
 Revelation 2:17  
 “He that hath an ear, let him hear what the Spirit saith unto the churches; To him that overcometh will I give to eat of the hidden manna, and will give him a white stone, and in the stone a new name written, which no man knoweth saving he that receiveth it.”
 
@@ -276,7 +276,7 @@ Job 40:10
 
 - Gold glows \- scientific studies show very fine gold glowing when exposed to light \- called photoluminescence.
 
-**\#\#\# It’s a Spiritual Building \- The Appearing**  
+### It’s a Spiritual Building \- The Appearing
 Hebrews 11:10  
 “For he looked for a city which hath foundations, whose builder and maker is God.”
 
@@ -315,7 +315,7 @@ Psalm 71:20
 Zechariah 9:11  
 “As for thee also, by the blood of thy covenant I have sent forth thy prisoners out of the pit wherein is no water.”
 
-**\#\#\# The Nature of New Jerusalem \- Birthing a Child**  
+### The Nature of New Jerusalem \- Birthing a Child
 Galatians 4:26  
 “But Jerusalem which is above is free, which is the mother of us all.”
 
@@ -398,7 +398,7 @@ Hebrews 12:9
 
 - Speaking of God the Father. Spiritual Father, the earthly ones being a type, physical bodies as a type of spiritual ones
 
-**\#\#\# Jerusalem Above \- Mother of Us All / The Bride / Only Daughter**  
+### Jerusalem Above \- Mother of Us All / The Bride / Only Daughter
 Song of Solomon 6:9  
 “My dove, my undefiled is but one; she is the only one of her mother, she is the choice one of her that bare her. The daughters saw her, and blessed her; yea, the queens and the concubines, and they praised her.”
 
@@ -480,7 +480,7 @@ Song of Solomon 4:12
 - Remember, you’re the bride of Christ but you’re also adopted as children, the sons of God, and the only daughter of Jerusalem which is above.  
 - Suffice it to say \- you’re family
 
-**\#\#\# New Jerusalem is the Bride**  
+### New Jerusalem is the Bride
 Revelation 21:9-10  
 \[9\] And there came unto me one of the seven angels which had the seven vials full of the seven last plagues, and talked with me, saying, Come hither, I will shew thee the bride, the Lamb's wife.  
 \[10\] And he carried me away in the spirit to a great and high mountain, and shewed me that great city, the holy Jerusalem, descending out of heaven from God,
